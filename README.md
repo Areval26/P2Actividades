@@ -1,1 +1,0 @@
-Act parcial2
